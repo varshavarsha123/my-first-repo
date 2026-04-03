@@ -1,0 +1,6 @@
+Hi.... 
+I'm VARSHINI currently persuing MCA at BHARATHIDASAN UNIVERSITY TRICHY garduate excepecting 2026 
+I have strong knowledge in python and frontend development and i done freelancing projects that make me a confident and communication.
+I"M a beginner magician interact and engagement with people. 
+Thanks for reading....
+HAVE A GOOD DAY😀
